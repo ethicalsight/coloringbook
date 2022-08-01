@@ -1,4 +1,5 @@
-# Coloring Book Privacy Policy
+# Privacy Policy
+## Coloring Book by Ethical Sight
 
 
 ### Introduction
