@@ -1,4 +1,4 @@
-# Privacy Policy
+# Coloring Book Privacy Policy
 
 
 ### Introduction
